@@ -16,4 +16,5 @@ for i,t in pairs(game:GetService("Players").LocalPlayer.Backpack:GetChildren()) 
                 t.Parent = game:GetService("Players").LocalPlayer.Character
             end
         end
+#
 `Dont Even Try Skidding My Scripts, Because If You Do I Will Sue You`
