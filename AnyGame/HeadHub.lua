@@ -56,6 +56,61 @@ end
 -- how are you this fucking dumb
 -- gay boy, dumbfuck, no friends, no dad/father
 -- how did you live being a skidder lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+-- your a real noob lol
+
 
 _, Protected_by_MoonSecV2, Discord = 'discord.gg/gQEH2uZxUk'
 
