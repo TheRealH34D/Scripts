@@ -46,6 +46,16 @@ end
 -- go touch grass then find yourself some bitches
 -- mf dumbass get a life
 -- maybe you could find a life off ebay
+-- cmon man stop spending your time skidding
+-- and go look for your lost dad will you
+-- hes probably lost or some shit
+-- he didnt know if he wanted you or not so he left
+-- your mum shouldve left too dumbass
+-- go kys son of a fucking bitch
+-- retarded skidder, mf u so gay lol
+-- how are you this fucking dumb
+-- gay boy, dumbfuck, no friends, no dad/father
+-- how did you live being a skidder lol
 
 _, Protected_by_MoonSecV2, Discord = 'discord.gg/gQEH2uZxUk'
 
